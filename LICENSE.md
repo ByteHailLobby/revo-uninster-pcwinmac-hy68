@@ -1,4 +1,4 @@
-# 
+# Avanzado Revo Uninstaller herramientas para Mac OS | Oficial Revo Uninstaller herramientas para PC Windows. Con exportación de datos y compresión de archivos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
